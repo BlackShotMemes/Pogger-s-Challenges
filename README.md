@@ -1,5 +1,7 @@
 # Pogger-s-Challenges
-Help yourself by doing challenges from the credits of the videos :D
-also DONT MODIFY THE FILES >:( I CODED SO MUCH AND YOU JUST BRUH wekptjh6390atjhawjiopejg69e569sr8t
-eghe-0a58gjveozsdfo[g
-DO NOT MODIFY LIKE REALLLY :(((((
+Already updated and i allowed you to modify files ONLY IF YOUR A PROFFESIONAL EXPERT PROGRAMMER OK
+bc it will be broken and you will have to download again lolololol
+also after downloading
+sorry if its only 1 challenge :(
+its bc im working on more :(
+so accept it >:)
